@@ -1,0 +1,2 @@
+# diamond
+Jual diamond murah
